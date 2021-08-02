@@ -17,5 +17,5 @@ Feel free to make bug reports on our issues. You can reach out to me in case you
 
 *Contact:*
 
-🎸 Anmol: anmolj1601@gmail.com
+Anmol: anmolj1601@gmail.com
 *****
